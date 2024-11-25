@@ -1,4 +1,4 @@
-# Play Sprunki Sus & Sprunki Sinner Edition & Sprunki Kiss Edition Onlie Free
+# Play Sprunki Sus & Sprunki Sinner Edition & Sprunki Kiss Edition Onlie
 
 The **Sprunki** game series, inspired by the popular music-mixing game **Incredibox**, consists of several engaging mods that enhance the original gameplay with unique themes and characters. Among these, **Sprunki SUS**, **Sprunki Sinner Edition**, and **Sprunki Kiss Edition** stand out for their distinct features and gameplay mechanics. 
 
