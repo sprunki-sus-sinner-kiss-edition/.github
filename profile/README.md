@@ -2,6 +2,15 @@
 
 The **Sprunki** game series, inspired by the popular music-mixing game **Incredibox**, consists of several engaging mods that enhance the original gameplay with unique themes and characters. Among these, **Sprunki SUS**, **Sprunki Sinner Edition**, and **Sprunki Kiss Edition** stand out for their distinct features and gameplay mechanics. 
 
+# Play Sprunki Game Now
+Ready to begin your dark musical journey? Let's go!
+
+- Play [Sprunki Sus](https://sprunki-retake.net)
+
+- Play [Sprunki Sinner Edition](https://sprunkisinner.org/)
+
+- Play [Sprunki Kiss Edition](https://sprunki-retake.net/sprunki-kiss-edition)
+
 ## 🧙 Sprunki SUS
 
 ### Gameplay and Features:
