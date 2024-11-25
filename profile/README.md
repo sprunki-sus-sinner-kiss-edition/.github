@@ -11,6 +11,8 @@ Ready to begin your dark musical journey? Let's go!
 
 - Play [Sprunki Kiss Edition](https://sprunki-retake.net/sprunki-kiss-edition)
 
+[![Sprunki Sinner Edition](https://sprunkisinner.org/_nuxt/sprunki-sinner-edition.BFsKprZQ.png)](https://sprunki-retake.net/_nuxt/sprunki-retake.DCj9Xdqs.png)
+
 ## 🧙 Sprunki SUS
 
 ### Gameplay and Features:
