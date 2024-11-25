@@ -5,7 +5,7 @@ The **Sprunki** game series, inspired by the popular music-mixing game **Incredi
 # Play Sprunki Game Now
 Ready to begin your dark musical journey? Let's go!
 
-- Play [Sprunki SUS](https://sprunki-retake.net)
+- Play [Sprunki SUS](https://sprunki-retake.net/sprunki-sus)
 
 - Play [Sprunki Sinner Edition](https://sprunkisinner.org/)
 
